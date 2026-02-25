@@ -7,3 +7,4 @@ suppp my
 timee
 chekout
 fck the contrais
+the enemy dont win me
